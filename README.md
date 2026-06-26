@@ -4,3 +4,8 @@ planning to tint pink. btw thanks for the 300 followers update when it's 310 N :
 
 <details>hi.
   <summary>coding.test🥺stillwip</summary>
+
+
+
+  
+<img width="576" height="838" alt="Image" src="https://github.com/user-attachments/assets/4fbec606-9c15-45ac-9622-0cb69c9573df" />
