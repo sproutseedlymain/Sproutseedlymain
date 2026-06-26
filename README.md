@@ -9,3 +9,5 @@ planning to tint pink. btw thanks for the 300 followers update when it's 310 N :
 
   
 <img width="576" height="838" alt="Image" src="https://github.com/user-attachments/assets/4fbec606-9c15-45ac-9622-0cb69c9573df" />
+<img width="1080" height="382" alt="Image" src="https://github.com/user-attachments/assets/fd823942-09cb-419b-ae03-dfa1223fd6a9" />
+meet buff pebble 
