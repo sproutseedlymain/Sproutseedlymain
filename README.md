@@ -5,6 +5,7 @@ https://docs.google.com/document/d/1HfN8FKkMS3EJAH_h-9fbsiYfYnhQmvjy/edit?usp=dr
 
 doc about how soulstone labs r doxxing people I would like to spread awareness pls spread the word this is for your own privacy and others as well
 
+20:17[Aquarine] It is homophobic and transphobic and racist as well
 
 <img width="196" height="268" alt="Image" src="https://github.com/user-attachments/assets/bb000abf-e76e-46bc-8387-ae2cb333dcab" />
 
