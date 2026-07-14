@@ -5,3 +5,12 @@ people made me feel really dissapointed I just wanted to fit idc if u say we sti
 PLS DNIUID IF U HAVE A PROBLEM. IM CURRENTLY ANNOYED IF YOU DO. 
 
 now take care and have fun with your life im okay im just really annoyed and wanting to say this for a long time. 
+
+and plss dont target me ive been pretty much upset on how people do mention me in the most worst ways ever ley ley is tired about everything they just want peace and to be loved. . . . pls do not send anything that makes me upset and do not even dare to join Yumeshipper just to find me I will block you due to uncomfyness.  .   .   .           Sprout does not want 
+    you to judge me. if Sprout
+cares I love you. I love you with. 
+everything in a plantonic way but I think
+you just don't care. especially people who spam Sprout hate in front of me. 
+
+
+I AM INNOCENT
